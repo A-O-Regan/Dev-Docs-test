@@ -10,5 +10,5 @@ Cork City, located in the south of Ireland, is the country's second-largest city
 
 | ## Things that are better in Cork | ## Things that are better in Dublin |   |
 | --------------------------------- | ----------------------------------- | - |
-|                                   |                                     |   |
-|                                   |                                     |   |
+| The people                        |                                     |   |
+| The pubs                          |                                     |   |
