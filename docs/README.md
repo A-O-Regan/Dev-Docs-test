@@ -11,5 +11,5 @@ Cork City, located in the south of Ireland, is the country's second-largest city
 | ## Things that are better in Cork | ## Things that are better in Dublin |   |
 | --------------------------------- | ----------------------------------- | - |
 | The people                        | Oscar Wilde was born there          |   |
-| The pubs                          |                                     |   |
-|                                   |                                     |   |
+| The pubs                          | Nothing else of note                |   |
+| Roy Keane was born there          |                                     |   |
